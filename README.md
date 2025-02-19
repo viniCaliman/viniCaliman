@@ -1,4 +1,4 @@
-## 👔 ![viniCaliman](https://img.shields.io/badge/%20-EU%20SOU%20O%20VINICIUS%20CALIMAN!-ORANGE) 
+## 👔 ![viniCaliman](https://img.shields.io/badge/%20-EU%20SOU%20O%20VINICIUS%20CALIMAN!-0000FF) 
 
 
 ### 🎓 Formação Acadêmica: 
